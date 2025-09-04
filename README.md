@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **abrarnafiu@abrarnafiu.com**
 
-<h3 align="left">Connect with me: [Linkedin](https://www.linkedin.com/in/abrar-nafiu)</h3>
+<h3 align="left">Connect with me: https://www.linkedin.com/in/abrar-nafiu</h3>
 <p align="left">
 </p>
 
