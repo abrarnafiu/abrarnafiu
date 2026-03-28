@@ -5,7 +5,7 @@
 
 - 👨‍💻 All of my projects are available at [abrarnafiu.com](abrarnafiu.com)
 
-- 📫 How to reach me **abrarnafiu@abrarnafiu.com**
+- 📫 How to reach me **abrarnafiu@gmail.com**
 
 <h3 align="left">Connect with me: https://www.linkedin.com/in/abrar-nafiu</h3>
 <p align="left">
